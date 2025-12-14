@@ -1,1 +1,0 @@
-# photo-swipe-clean-privacy-policy
